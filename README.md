@@ -1,1 +1,1 @@
-# businesseconomics202223autumn
+# RedBull GmbH company analysis
